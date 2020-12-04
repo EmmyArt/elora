@@ -1,2 +1,2 @@
-# elorasarts
+# elora
 My Art Business
